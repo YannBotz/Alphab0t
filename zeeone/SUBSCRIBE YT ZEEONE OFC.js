@@ -1,6 +1,6 @@
 /*
-Support channel ZEEONE OFC
+Support channel KRIZSER OFC
 
 
-Yang jual sc ini anak haram
+DONT COME PM FOR BOT FILE 
 */
